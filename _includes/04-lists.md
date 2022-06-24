@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Bored Apes
+  2. Lazy Apes
+ 
+- NFTs
+- Crypto
